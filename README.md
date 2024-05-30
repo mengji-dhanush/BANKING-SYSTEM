@@ -1,1 +1,1 @@
-# Author - Dhanush Mengji of VIT
+# Author - Dhanush Mengji
